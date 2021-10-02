@@ -1,0 +1,1 @@
+potatoes, canola oil, soybean oil, hydrogenated soybean oil, natural beef flavor, hydrolyzed wheat, hydrolyzed milk, citric acid, dimethylpolysiloxane, dextrose, sodium acid pyrophosphate, salt, canola oil, corn oil, soybean oil, hydrogenated soybean oil, TBHQ, citric acid, dimethylpolysiloxane.
